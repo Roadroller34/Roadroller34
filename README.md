@@ -1,0 +1,5 @@
+           - 👋 Salut je suis @Roadroller34
+- 🎮 Je joue beaucoup à des jeux vidéos même si je suis pas très doué
+- 💬 Je suis très souvent sur Discord donc je parle pas mal
+- 🍌 Je vais énormément sur fortnite malgré mon niveau déplorable
+- 😑J'ai créer ce compte sans aucun but précis (jsp à quoi sert ce site)
